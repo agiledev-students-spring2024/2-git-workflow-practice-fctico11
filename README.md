@@ -9,3 +9,4 @@ These accomplishments highlight the challenges and opportunities in building and
 
 ## Comments
 Feel free to add any comments below:
+`connor deleon:` I think this article's discusion of the unexpected success of $JUP's airdrop by Jupiter is super interesting. As someone who doesn't know much about finance and trading platforms I think it's super cool how collaborative the effort of this airdrop has been.
